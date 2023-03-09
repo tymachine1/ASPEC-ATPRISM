@@ -1,4 +1,16 @@
 # PRISM
+This is an official proxy of the ASPEC NETWORK
 
 
-URGENT WARNING: DUE TO MULTIPLE UNKNOWN HARDWARE IP'S ENTERING THE SITE, PRISM HAS AUTOMATICALLY SHUT DOWN ALL ASPEC SERVICE LINKS FOR THE REMAINDER OF 3/9/2023 DURING THAT DATE ALL ASPEC SERVICE LINKS WILL BE SUBJECT TO CHANGE, IT TAKES AROUND 8 HOURS FOR LINKS TO UPDATE GLOBALY. MORE WILL BE DESCUSSED AT SCHOOL. THANK YOU FOR USING ASPEC
+OFFICIAL LINKS:
+ [ASPEC LINK ONE](https://useast-prism-sodfhierusdgs.up.railway.app/).
+ [ASPEC LINK TWO](https://https://useast-aspec-sdfsdfewfiwe-prism.up.railway.app/).
+ [ASPEC LINK THREE](https://useast-agduwasdw.up.railway.app/).
+ [ASPEC LINK FOUR](https://useast-aguykfguew.up.railway.app/).
+ [ASPEC LINK FIVE](https://useast-asdguwya.up.railway.app/).
+ 
+ 
+
+ 
+ 
+ PROTECTED UNDER PRISM
